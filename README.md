@@ -1,1 +1,1 @@
-Just chilling
+Şşş sal beni
