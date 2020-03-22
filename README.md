@@ -1,1 +1,1 @@
-Şşş sal beni
+öyle işte
